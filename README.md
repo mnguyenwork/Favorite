@@ -9,5 +9,5 @@ Singing is totally my all-time favorite activity. I could spend hours just hummi
 - It’s an effective **stress relief** after long hours of work.
 - I find my inner **creativity** is fully **nourished**. 
 
-## My favorite song to sing along:##
+## My favorite song to sing along 🎤: ##
 [Off My Face by Justine Bieber](https://drive.google.com/file/d/1D7uDfFgT89x-PkW1gyZOMNvPk-tjRnrf/view?usp=drive_link)
