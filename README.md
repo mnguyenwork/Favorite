@@ -1,2 +1,1 @@
-# Favorite
-My favorite activity
+# My favorite activity
