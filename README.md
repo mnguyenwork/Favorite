@@ -10,4 +10,4 @@ Singing is totally my all-time favorite activity. I could spend hours just hummi
 - I find my inner **creativity** is fully **nourished**. 
 
 ## My favorite song to sing along 🎤: ##
-[Off My Face by Justine Bieber](https://drive.google.com/file/d/1D7uDfFgT89x-PkW1gyZOMNvPk-tjRnrf/view?usp=drive_link)
+[Off My Face by Justin Bieber](https://drive.google.com/file/d/1D7uDfFgT89x-PkW1gyZOMNvPk-tjRnrf/view?usp=drive_link)
