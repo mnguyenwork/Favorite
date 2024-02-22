@@ -5,3 +5,6 @@ Singing is totally my all-time favorite activity. I could spend hours just hummi
 ![a lady singing](singing.jpg)
 
 ## **Reasons why I ❤️ singing** 
+- I feel free and positive when I emerge in music.
+- It’s an effective stress relief after long hours of work.
+- I find my inner creativity is fully nourished. 
